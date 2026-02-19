@@ -1,4 +1,3 @@
-![IMG_6285](https://github.com/user-attachments/assets/01690c3f-5d9c-45fc-8e8c-4bff7fbaecae)
 
 #  Hi, I'm **Sajana Aryal**  
 
